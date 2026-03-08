@@ -1,4 +1,4 @@
-![Рисунок1](https://github.com/user-attachments/assets/a45ec507-069b-4514-a967-7fef8634ace8)
+
 👋Hi,I'm Arseniy
 
 
